@@ -1,1 +1,0 @@
-# open_pub_application-internship_project
